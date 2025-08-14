@@ -6,3 +6,5 @@
 - if you will not ask for help they will ignore you
 - gold have value so they take gold and pass iou ( a paper) thats what we call bill 
 - Chanting something louder is a marketing slogan
+- In a country where there are many thieves, the landlord lives in a prison
+- This Time will also pass.

@@ -8,3 +8,4 @@
 - Chanting something louder is a marketing slogan
 - In a country where there are many thieves, the landlord lives in a prison
 - This Time will also pass.
+- defintion : "to enclose within the limits "

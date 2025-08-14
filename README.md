@@ -5,3 +5,4 @@
 - capitalism is a poison for poors
 - if you will not ask for help they will ignore you
 - gold have value so they take gold and pass iou ( a paper) thats what we call bill 
+- Chanting something louder is a marketing slogan

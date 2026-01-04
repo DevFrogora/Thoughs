@@ -9,6 +9,4 @@ _ if you will not ask for help they will ignore you
 - In a country where there are many thieves, the landlord lives in a prison
 - This Time will also pass.
 - defintion : "to enclose within the limits "
-_ Nobody is nobody's friend, nobody is nobody's well-wisher,
-
-persons become friends or enemies only from motives of interest
+_ Nobody is nobody's friend, nobody is nobody's well-wisher, persons become friends or enemies only from motives of interest

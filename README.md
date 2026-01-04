@@ -3,9 +3,12 @@
 - they see you with their lens , they label you with their filtering vision
 - you are on a rat race if you are poor
 - capitalism is a poison for poors
-- if you will not ask for help they will ignore you
+_ if you will not ask for help they will ignore you
 - gold have value so they take gold and pass iou ( a paper) thats what we call bill 
 - Chanting something louder is a marketing slogan
 - In a country where there are many thieves, the landlord lives in a prison
 - This Time will also pass.
 - defintion : "to enclose within the limits "
+_ Nobody is nobody's friend, nobody is nobody's well-wisher,
+
+persons become friends or enemies only from motives of interest
